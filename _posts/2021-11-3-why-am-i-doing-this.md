@@ -14,4 +14,3 @@ In the future, I'll probably just use this as thought dump. Don't expect much. I
 
 Ok that's it good bye 💙
 
-~11/4 me 
