@@ -1,6 +1,6 @@
 We're starting deep 👀
 
-Okay so this is a topic I feel isolated, yet strongly, about. Also, this is tailored towards high schoolers.
+Okay so this is a topic I feel isolated in, yet strongly about. Also, this is tailored towards high schoolers.
 
 I'm stubborn. And competitive. Success has always been a big motivator for me. In 10th grade I became uber-aware of my future and that every action (or lack thereof) could screw me over if I'm not careful. I fretted about getting into a good college. I got jealous at my peers for winning stuff-- stuff I didn't even know about. Literally people missing school to go to competitions (of any type) made me feel shitty because it was a competition I wasn't going to, and thus it, obviously, made me behind/lesser than them. I convinced myself I *had* to do [xyz] in order to [go to good college, obtain dignity, etc.]. As you can imagine, I was also the type to fear wasting time; I forced myself to stay up to 2am, on average, just so I didn't feel bad for not taking advantage of my every living second (I woke up at 6:30). 
 
