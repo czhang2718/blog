@@ -1,9 +1,3 @@
----
-date: 11/3/2021
-layout: post
-title: Why am I doing this?
----
-
 # First post!
 
 I'm typing this with great resistence. It feels weird to talk this *openly* and have my words last... forever, on the internet. I guess this is one reason I'm doing this. Hey I should just make a list of reasons. 
