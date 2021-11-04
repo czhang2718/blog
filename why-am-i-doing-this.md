@@ -10,4 +10,8 @@ I'm typing this with great resistence. It feels weird to talk this *openly* and 
 
 3. **To get this off my to-do list.** So I'm actually distracted now. I was solving [a problem](http://usaco.org/index.php?page=viewproblem2&cpid=1069) (you should try it 😀), and I took a ~~short~~ break and suddenly had the urge to write. This happens a lot... Hopefully I can get back to that problem without whimsical impulses distracting me.
 
+In the future, I'll probably just use this as thought dump. Don't expect much. I hope I don't end up deleting this out of insecurity lol. Well now I said that, I feel like I have to hold my self accountable... 
+
 Ok that's it good bye 💙
+
+~11/4 me 
