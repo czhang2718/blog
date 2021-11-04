@@ -19,7 +19,7 @@ I've been trying to conduct every action with meaning. These are some of my chan
 - I stopped violin lessons after 6 years because it felt like a chore 
 - I quit some coding projects, DECA, and debate; I only did them because my brother did
 
-These past two years I've felt freer and happier as ever. I literally stopped experiencing stress. Not to mention, I've also felt the most accomplished recently. All because I no longer feel obligated to do anything in life. I mean, if my existence was a simulation and everyone else was a bot (who knows 🤷‍♀️), I want to make it out fulfilled with what I've done. 
+These past two years I've felt freer and happier as ever. I literally stopped experiencing stress. Not to mention, I've also felt the most accomplished recently. All because I no longer feel obligated to do anything in life. I mean, if my existence was a simulation and everyone else was a bot (who knows 🤷‍♀️), I want to make it out fulfilled.
 
 I hope this inspires you to act with purpose, and that purpose self-selected. Now I'll fashionably end with a Kanye lyric 
 >> "No more living for the culture, we're nobody's slave". (Closed on Sundays)
