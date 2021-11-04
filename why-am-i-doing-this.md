@@ -8,6 +8,6 @@ I'm typing this with great resistence. It feels weird to talk this *openly* and 
 
 2. **To share ideas**. Nothing technical (this is not a math blog ~~yet~~). I feel alone in many of my beliefs. I know there's so many people in this world that there's almost certainly at least someone else who can relate to my struggles, values, etc. I surely would have bennefitted from being more confident in my individuality years ago. I hope sharing my thoughts can make us feel more similar than different :).
 
-3. **To get this off my to-do list.** So I'm actually distracted now. I was solving a USACO problem, and I took a ~~short~~ break and suddenly had the urge to write. This happens a lot... Hopefully I can get back to that problem without whimsical impulses distracting me.
+3. **To get this off my to-do list.** So I'm actually distracted now. I was solving [a problem](http://usaco.org/index.php?page=viewproblem2&cpid=1069), and I took a ~~short~~ break and suddenly had the urge to write. This happens a lot... Hopefully I can get back to that problem without whimsical impulses distracting me.
 
 Ok that's it good bye 💙
