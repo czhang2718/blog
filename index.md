@@ -4,7 +4,7 @@ So this is my blog, I guess.
 
 ### Posts
 
-[My first post](why-am-doing-this.html)
+[My first post](/why-am-doing-this.html)
 
 Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
 
