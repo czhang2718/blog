@@ -2,7 +2,7 @@
 
 I'm typing this with great resistence. It feels weird to talk this *openly* and have my words last... forever, on the internet. I guess this is one reason I'm doing this. Hey I should just make a list of reasons. 
 
-## Why am I doing this
+## Why am I created this ~~jank github pages~~ blog
 
 1. **To connect my private thoughts to action**. lol that probably doesn't make sense. What I mean is: I, as any other creature, think privately and am confident internally. But everytime I interact with other humans it's like an alter ego of "me" is talking, not *me* me. For example, I was all giddy to start writing this first post, but once I started writing I suddenly viewed myself from the third perspective, judging the action of making a public blog that other people can read. I'm literally cringing right now too, as I write, anticipating people (you) thinking I sound haughty, or talk too much. But I feel like I shouldn't be. If someone else blogged this, I'd enjoy reading it! In short, I want to be more honest and realistic with myself.
 
