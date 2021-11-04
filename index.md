@@ -1,4 +1,4 @@
-<!-- ## Posts -->
+## Posts
 
 [Freeing Yourself](https://czhang2718.github.io/blog/posts/2021-11-4-freeing-yourself.md)
 
